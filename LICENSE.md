@@ -1,10 +1,10 @@
-New Astrill VPN Client | PPTP support + DNS leak protection is the best Astrill VPN client with PPTP support and DNS leak protection. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/astrill-vpn-br45/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
