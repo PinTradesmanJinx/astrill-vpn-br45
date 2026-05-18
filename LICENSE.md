@@ -1,10 +1,10 @@
-新Astrill客户端 | PPTP支持 + DNS泄露保护 是最佳 Astrill 客户端，集成 PPTP支持 和 DNS泄露保护。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/astrill-vpn-br45/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
