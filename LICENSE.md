@@ -1,10 +1,10 @@
-Nuevo Astrill VPN Cliente | soporte PPTP + protección contra fugas de DNS es el mejor Astrill VPN cliente con soporte PPTP y protección contra fugas de DNS. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/astrill-vpn-br45/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
