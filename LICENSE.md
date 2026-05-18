@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PinTradesmanJinx.github.io/astrill-vpn-br45/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PinTradesmanJinx.github.io/astrill-vpn-br45/https://PinTradesmanJinx.github.io/astrill-vpn-br45/) |
  |---------------------|----------------------:|
 
 
