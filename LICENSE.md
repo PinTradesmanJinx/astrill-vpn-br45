@@ -1,4 +1,4 @@
-جديد Astrill عميل | دعم PPTP + حماية تسرب DNS هو أفضل Astrill عميل مع دعم PPTP و حماية تسرب DNS. آمن ومُحَسّن.
+جديد Astrill عميل | دعم PPTP + حماية تسرب DNS هو أفضلNovo Astrill VPN Cliente | suporte PPTP + proteção contra vazamento de DNS é o melhor Astrill VPN cliente com suporte PPTP e proteção contra vazamento de DNS. Seguro e otimizado. Astrill عميل مع دعم PPTP و حماية تسرب DNS. آمن ومُحَسّن.
 
 
 
